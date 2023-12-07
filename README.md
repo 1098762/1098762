@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+現讀
+
+輔仁大學社會學系四年級 日文系、統資系輔系
+銘傳大學財金系雙主修
+
+
 <!--
 **1098762/1098762** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
